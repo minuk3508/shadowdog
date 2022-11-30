@@ -3,7 +3,7 @@
 ![shdowdog](https://user-images.githubusercontent.com/104561398/204678718-d8bea3da-a0d9-48c2-841e-7c1470995c13.gif)
 
 ### 📍 체험해보기[GO!](https://main.dlzjoj11mljgo.amplifyapp.com/)
-
+### 📍 리소스 사이트[bevouliin](https://bevouliin.com/)
 <br/>
 <br/>
 
